@@ -1,0 +1,1 @@
+# privacy-policy-appstore.github.io
